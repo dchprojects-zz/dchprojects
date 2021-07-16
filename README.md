@@ -1,5 +1,3 @@
-### Hi there 👋
-
 # G'day! I'm Dima. 😃
 
 <p align="left">
